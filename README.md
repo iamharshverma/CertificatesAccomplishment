@@ -1,2 +1,2 @@
 # Certificates & Accomplishment
-Certificates &amp; Accomplishment
+Coursera, Udemy and other MOOCs Certificates
